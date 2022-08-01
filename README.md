@@ -1,5 +1,5 @@
 - #sobremim#
-- Maria Euarda
+- Maria Eduarda
 - maria.melo.lima19@escola.pr.gov.br
 - Eu sou humilde
 - Eu moro em Araucária
